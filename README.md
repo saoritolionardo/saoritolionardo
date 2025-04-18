@@ -2,7 +2,7 @@
 - 👀 I’m interested in code.
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on digital game design.
-- 📫 How to reach me :deliver e-mail to 2667221029@qq.com
+- 📫 How to reach me :deliver e-mail to katiesieaandrew@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
